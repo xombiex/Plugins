@@ -1,1 +1,1 @@
-Updated 12/21/2021 "I STOPPED UPDATING THIS AS OF BEGINING 2022"
+some plugins i have in my pc discord.gg/cost
